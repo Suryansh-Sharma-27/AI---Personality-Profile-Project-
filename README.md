@@ -22,14 +22,19 @@ The Director-Builder. You cast AI in roles. You're producing yourself as a brand
 
 AI Product Strategist
 ⭐⭐⭐⭐⭐
+
 Startup Founder (AI-native)
 ⭐⭐⭐⭐⭐
+
 Technical Content Creator
 ⭐⭐⭐⭐
+
 AI Consultant / Advisor
 ⭐⭐⭐⭐
+
 Venture-Backed Builder
 ⭐⭐⭐⭐
+
 
 5. 🧩 Learning & Decision Style
 
