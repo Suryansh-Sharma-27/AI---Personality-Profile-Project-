@@ -1,6 +1,7 @@
 # AI---Personality-Profile-Project-
 Your AI Title
 "The Visionary Promptsmith"
+
 You don't use AI. You direct it.
 🎬 Cinematic Character Description
 Late night. Blue screen glow. He's not Googling — he's architecting. The blazer isn't for an interview; it's armor for the climb. Sharp eyes that read a room before speaking. The kind of person who asks AI to profile him twice — not from insecurity, but because he's iterating on himself like a product. Version 2.0 already loading.
